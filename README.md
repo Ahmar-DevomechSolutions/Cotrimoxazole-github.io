@@ -1,1 +1,0 @@
-# Cotrimoxazole-github.io
